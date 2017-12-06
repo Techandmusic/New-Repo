@@ -1,1 +1,1 @@
-The notepad for nite
+The notepad for nite. Or day. Whichever you like.
